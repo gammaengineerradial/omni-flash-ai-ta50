@@ -1,4 +1,4 @@
-# 
+# Exclusivo Omni Flash herramientas. Con UI personalizable y grafos de conocimiento — optimizado para el máximo rendimiento y eficiencia.
 
 
 
